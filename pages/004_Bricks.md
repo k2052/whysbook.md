@@ -1,3 +1,5 @@
+# Bricks
+
 Nowadays we would label this kind of act as “information suicide” or something very sophisticated,
 because people are much more aware of the importance of ones’ identities, but in those days we
 simply called it “jerktoasting” and these people on the stage were just a few jerktoasters who got
